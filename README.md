@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is Nadnaps and I'm a procastinator, from India</h2>
+<h2 align="left">Hi 👋! My name is Nadnaps and I'm a procrastinator, from India</h2>
 
 ###
 
