@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="[https://i.imgflip.com/65efzo.gif](https://i.pinimg.com/474x/ed/78/79/ed787942f84b7ca9a08f61df75b19d0a.jpg?nii=t)"  />
+<img align="right" height="150" src="https://wallpapers.com/images/hd/aesthetic-zenitsu-pfp-ribisay8ez9p8usg.jpg"  />
 
 ###
 
