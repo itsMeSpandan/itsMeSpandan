@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on Catalyst- A revolutionary AI based time table maker<br>🌱 I’m currently learning Solidity<br>💬 A GREAT Procrastinator<br>
 
 
 # 💻 Tech Stack:
